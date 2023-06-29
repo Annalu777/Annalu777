@@ -2,7 +2,7 @@
 
 ##
 - 🚀 Suport in Rocket Roleplay
-- 🌱 Estudando agropecúaria 
+- 🌱 Técnica Agropecuária 
 - 😄 Pronouns: ela/dela
 
 ##
