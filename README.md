@@ -1,8 +1,7 @@
-### Salve, me chamo Anna
+### oii, me chamo Anna Luiza 
 
 ##
-- 🚀 Suport in Rocket Roleplay
-- 🌱 Técnica Agropecuária 
+- Analise e desenvolvimento de sistemas 2/6
 - 😄 Pronouns: ela/dela
 
 ##
