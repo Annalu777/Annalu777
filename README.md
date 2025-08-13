@@ -1,8 +1,4 @@
-### oii, me chamo Anna Luiza 
 
-##
-- Analise e desenvolvimento de sistemas 2/6
-- 😄 Pronouns: ela/dela
 
 ##
 
